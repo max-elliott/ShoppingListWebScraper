@@ -1,0 +1,8 @@
+ingredients
+onion: 1
+carrot: 3
+mince: 500g
+tomato puree: 1
+stock: 1 cube
+potato: 1000g
+milk: 500ml

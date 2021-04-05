@@ -1,0 +1,5 @@
+ingredients
+potato: 6
+carrot: 4
+onion: 1
+katsu sauce: 1 cube
