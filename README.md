@@ -19,56 +19,107 @@ Mapo tofu
 No-fuss shepherd's pie
 
 -~-~-~-~- Shopping List -~-~-~-~-
+
 Ingredients:
+
 olive oil: 2tbsp
+
 butter: 1tbsp, 135g
+
 onion: 3
+
 button chestnut mushroom: 250g
+
 garlic clove: 2
+
 dry white wine: 100ml
+
 double cream: 200ml
+
 lemon: 1
+
 parmesan (or vegetarian alternative): 250g
+
 tagliatelle or linguini: 300g
+
 bunch parsley: 1
+
 risotto rice: 180g
+
 vegetable stock cube: 1
+
 zest and juice 1 lemon: 1
+
 lemon thyme sprigs: 1
+
 courgette: 250g
+
 crème fraîche: 2tbsp
+
 block firm tofu: 400g
+
 cornflour: 1tbsp, 1tsp
+
 -1 tsp chilli flakes: 1
+
 -.5 tsp Szechuan peppercorns: 1
+
 vegetable oil: 1tbsp
+
 bunch of spring onions: 1
+
 green beans: 200g
+
 ready-to-use thick udon noodles: 400g
+
 sesame oil: 0.5tbsp
+
 sesame seeds: 2tsp
+
 low-salt soy sauce: 1tbsp
+
 rice vinegar: 1tbsp
+
 tofu: 450g
+
 groundnut oil: 3tbsp
+
 pork mince: 100g
+
 Sichuan chilli bean paste: 2tbsp
+
 fermented black beans: 1.5tbsp
+
 piece ginger peeled and finely chopped: 2cm
+
 garlic cloves: 1
+
 light chicken stock or water: 200ml
+
 spring onions: 1
+
 Sichuan chilli oil (optional): 1tbsp
+
 Sichuan peppercorns: 0.5tsp
+
 cooked white rice: 1
+
 sunflower oil: 1tbsp
+
 -3 medium carrots: 1
+
 pack lamb mince: 500g
+
 tomato purée: 2tbsp
+
 splash Worcestershire sauce: 1
+
 beef stock: 500ml
+
 potatoes: 900g
+
 milk: 3tbsp
+
 -~-~-~-~-~-~-~-~-~-~-~-~-~-~-~-~-
 
 **Other Notes**
